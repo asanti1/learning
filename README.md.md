@@ -1,0 +1,1 @@
+Este repositorio contiene los archivos que fui obteniendo con el tiempo y donde tengo conceptos
